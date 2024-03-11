@@ -1,0 +1,1 @@
+Experience the convenience of online shopping with our Amazon Clone project. Seamlessly browse through a vast catalog of products, add items to your cart, and enjoy secure checkout. With user-friendly navigation and a familiar interface, our clone replicates the renowned Amazon shopping experience. Explore today and discover the future of online retail!
